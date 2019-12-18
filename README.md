@@ -1,0 +1,2 @@
+# rootme
+fuck society
